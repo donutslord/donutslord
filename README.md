@@ -1,3 +1,4 @@
-![](https://file.garden/aIrFR9W4twp1wUOQ/6a316943f1b99de173d35690c63c2ccb.gif)
-
-[straw](https://donutlord.straw.page)
+![](https://file.garden/aIrFR9W4twp1wUOQ/Untitled143_20251016044135.png)
+<div id="text" align="center">
+  
+[straw.ᐟ](https://donutlord.straw.page)
